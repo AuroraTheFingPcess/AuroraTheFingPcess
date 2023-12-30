@@ -6,6 +6,6 @@
 - 🤔 I’m looking for help with motivation
 - 💬 Ask me about anything really
 - 📫 How to reach me: good question
-- ⚡ Fun fact: I have Polyarthritis, fibromyalgia, depression, autism spectrum disorder, philophobia, and a broken knee. Oh no wait its just fact 😒
+- ⚡ Fun fact: I have polyarthritis, fibromyalgia, depression, autism spectrum disorder, philophobia, and a broken knee. Oh no wait its just fact 😒
 -->
   
